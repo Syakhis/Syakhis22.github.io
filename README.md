@@ -1,2 +1,2 @@
-# Syakhis22.github.io
+# Syakhis2.github.io
 Hello
